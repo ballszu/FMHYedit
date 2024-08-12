@@ -614,7 +614,7 @@
 * [Awesome Buttplug](https://github.com/buttplugio/awesome-buttplug) - Buttplug Project Index
 * [Buttplug.io](https://buttplug.io/) - Sex Toy Control Software
 * [Thunder's Place](https://thunders.place/) - Penis Enlargement Discussion & Safety
-* [MoanMyIP](https://www.moanmyip.com/) - Sexy Girls Moaning Your IP
+* [MoanMyIP](https://www.moanmyip.com/) - Sexy Girls Moaning Your IP Address
 * [ERP/RP Datasets](https://rentry.org/qib8f) - NSFW Roleplaying LLM Datasets
 
 ***
